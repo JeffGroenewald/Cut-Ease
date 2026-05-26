@@ -141,6 +141,104 @@ Ready to try it yourself?
 
 ---
 
+## Week 3
+
+### Post 7 — Monday (Use: IMG_3198)
+
+**Caption:**
+How much are dull blades costing you?
+
+Between replacements, rework, and wasted time — it adds up fast.
+
+Cut-Ease keeps your blades cutting clean for longer. One spray before your cut and you'll feel the difference immediately.
+
+$12 a can. Pays for itself in the first hour.
+
+👉 www.cutease.co.nz
+
+---
+
+### Post 8 — Wednesday (Use: IMG_3200)
+
+**Caption:**
+Dry cutting aluminium is like driving without oil. You can do it… but why would you?
+
+Cut-Ease aluminium cutting lubricant:
+🔹 Reduces heat buildup
+🔹 Prevents blade gumming
+🔹 Extends blade life significantly
+🔹 Wipes clean — no sticky residue
+
+Your equipment works hard. Give it what it needs.
+
+👉 www.cutease.co.nz
+
+---
+
+### Post 9 — Friday (Use: IMG_3199)
+
+**Caption:**
+Ever notice how the last few cuts of the day are always rougher than the first?
+
+That's blade wear from friction and heat. Cut-Ease eliminates both — so your last cut of the day is just as clean as your first.
+
+Consistent quality. From the first cut to the fiftieth.
+
+👉 Order here: www.cutease.co.nz
+
+---
+
+## Week 4
+
+### Post 10 — Monday (Use: IMG_3201)
+
+**Caption:**
+Quick question for fabricators 👇
+
+How often are you replacing saw blades?
+
+If it's more than you'd like — you're probably cutting dry. Cut-Ease lubricant dramatically extends blade life and improves cut quality on aluminium.
+
+One can lasts hundreds of cuts. At $12, it's a no-brainer.
+
+👉 www.cutease.co.nz
+
+---
+
+### Post 11 — Wednesday (Use: IMG_3198 or IMG_3200)
+
+**Caption:**
+"What's that stuff you're spraying?"
+
+We hear it all the time. Once tradies see Cut-Ease in action, they want to know what it is.
+
+The short answer: aluminium cutting lubricant that actually works.
+
+The long answer? Try it yourself 👇
+
+👉 www.cutease.co.nz
+
+---
+
+### Post 12 — Friday (Use: All 4 images as carousel or IMG_3199)
+
+**Caption:**
+Weekend project tip 💡
+
+Whether you're cutting aluminium for a reno, building frames, or doing repairs — spray Cut-Ease on the blade first.
+
+You'll get:
+• Cleaner cuts with less burr
+• No blade gumming
+• Way less noise
+• A finish that doesn't need filing
+
+Available in single cans or boxes of 12.
+
+👉 www.cutease.co.nz
+
+---
+
 ## Instagram Stories / Reels Ideas
 
 1. **Quick demo** — 10-second spray + cut. Caption: "One spray. Clean cut. Done."
