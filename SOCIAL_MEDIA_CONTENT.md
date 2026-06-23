@@ -239,6 +239,223 @@ Available in single cans or boxes of 12.
 
 ---
 
+## Week 5
+
+### Post 13 — Monday (Use: IMG_3198)
+
+**Caption:**
+Monday morning. Fresh blade. First spray of the week.
+
+There's something satisfying about that first clean cut when you know your blade is going to stay sharp all day.
+
+Cut-Ease aluminium cutting lubricant — protecting your blades while you get the job done.
+
+👉 www.cutease.co.nz
+
+#CutEase #MondayMotivation #AluminiumFabrication #DropSaw #BladeLife #NZTrades #CuttingLubricant #WorkshopLife #FabricationNZ #TradeTools
+
+---
+
+### Post 14 — Wednesday (Use: IMG_3201)
+
+**Caption:**
+Here's the maths 👇
+
+Average replacement blade: $80–$150+
+One can of Cut-Ease: $12
+
+If Cut-Ease doubles your blade life (and it does), you're saving hundreds per year — per saw.
+
+Now multiply that across your whole workshop.
+
+Still think lubricant is optional?
+
+👉 www.cutease.co.nz
+
+#CutEase #SaveMoney #FabricationCosts #AluminiumCutting #BladeReplacement #TradeLife #SmartWorkshop #NZBusiness #CuttingFluid #ROI
+
+---
+
+### Post 15 — Friday (Use: IMG_3199)
+
+**Caption:**
+Friday arvo tip: clean your blade, then give it a spray of Cut-Ease before you knock off.
+
+Come Monday, your first cut will be perfect. No warm-up cuts. No grinding. Just clean aluminium straight off the saw.
+
+Set yourself up for next week.
+
+👉 www.cutease.co.nz
+
+#CutEase #FridayTip #BladeCare #AluminiumFab #WorkshopHacks #NZTrade #CleanCuts #FabricationLife #TradeEssentials #WeekendReady
+
+---
+
+## Week 6
+
+### Post 16 — Monday (Use: IMG_3200)
+
+**Caption:**
+Bandsaws are the workhorses of any aluminium workshop. They run all day, every day.
+
+So why are so many fabricators running them dry?
+
+Cut-Ease reduces friction, prevents gumming, and keeps your bandsaw blade cutting true — cut after cut after cut.
+
+Give your workhorse what it needs.
+
+👉 www.cutease.co.nz
+
+#CutEase #Bandsaw #AluminiumFabrication #WorkhorseTools #CuttingLubricant #NZManufacturing #FabLife #MetalCutting #TradeTools #BladeProtection
+
+---
+
+### Post 17 — Wednesday (Use: IMG_3198 or IMG_3201)
+
+**Caption:**
+What fabricators say after switching to Cut-Ease:
+
+❌ "Why didn't I try this sooner?"
+✅ "My blades last twice as long now."
+✅ "The cut quality is noticeably better."
+✅ "Way easier than bobbin grease."
+
+The only regret? Not switching earlier.
+
+👉 Try it yourself: www.cutease.co.nz
+
+#CutEase #FabricatorApproved #AluminiumCutting #BetterCuts #NZFabricators #CuttingSpray #TradeUpgrade #WindowIndustry #RealResults #ShopNow
+
+---
+
+### Post 18 — Friday (Use: IMG_3199)
+
+**Caption:**
+You wouldn't run your car without oil.
+You wouldn't use a drill without a bit.
+
+So why are you cutting aluminium without lubricant?
+
+Cut-Ease is purpose-built for aluminium fabrication. It's not a general-purpose spray — it's specifically formulated to reduce friction on aluminium cuts.
+
+The right tool for the right job.
+
+👉 www.cutease.co.nz
+
+#CutEase #RightToolRightJob #AluminiumLubricant #PurposeBuilt #FabricationNZ #MetalFabrication #CuttingFluid #NZBusiness #QualityCuts #TradeLife
+
+---
+
+## Week 7
+
+### Post 19 — Monday (Use: IMG_3201)
+
+**Caption:**
+New week. New blade? Hopefully not.
+
+If you're going through blades faster than you'd like, you're leaving money on the table.
+
+Cut-Ease keeps your blades sharper for longer — meaning fewer change-outs, less downtime, and more production.
+
+One spray. Multiple cuts. Simple.
+
+👉 www.cutease.co.nz
+
+#CutEase #BladeSavings #AluminiumFabrication #LessDowntime #ProductionEfficiency #NZTrades #FabricationTools #CuttingLubricant #SmartFabrication #WorkshopEssentials
+
+---
+
+### Post 20 — Wednesday (Use: All 4 images as carousel)
+
+**Caption:**
+Cut-Ease works on every saw in your workshop:
+
+🔹 Drop saws — cleaner mitres, less burr
+🔹 Bandsaws — smoother feed, less blade wander
+🔹 Table saws — reduced heat, better finish
+🔹 Grinders — less clogging, longer disc life
+
+One product. Every machine. $12 a can.
+
+Why complicate it?
+
+👉 www.cutease.co.nz
+
+#CutEase #VersatileLubricant #AllSaws #AluminiumCutting #MetalWork #FabricationNZ #OneProduct #WorkshopHacks #NZManufacturing #BulkBuy
+
+---
+
+### Post 21 — Friday (Use: IMG_3200)
+
+**Caption:**
+Burrs on your aluminium cuts?
+
+That's friction talking. When your blade drags through dry aluminium, it tears instead of cuts — leaving rough edges that need filing or sanding.
+
+Cut-Ease eliminates that. One spray reduces friction so your blade slices clean. Less rework. Better finish. Faster output.
+
+👉 www.cutease.co.nz
+
+#CutEase #NoBurrs #CleanFinish #AluminiumFab #LessRework #FabricationLife #CuttingLubricant #QualityCuts #NZTrade #SmartWorkshop
+
+---
+
+## Week 8
+
+### Post 22 — Monday (Use: IMG_3198)
+
+**Caption:**
+The best products are the ones you don't think about.
+
+Spray. Cut. Move on.
+
+Cut-Ease doesn't need setup, mixing, or cleanup. It goes on in seconds, stays on for multiple cuts, and wipes off clean when you're done.
+
+No mess. No fuss. Just results.
+
+👉 www.cutease.co.nz
+
+#CutEase #NoFuss #EasyToUse #AluminiumCutting #SprayAndCut #FabricationNZ #TradeEssentials #QuickApplication #WorkshopLife #NZBusiness
+
+---
+
+### Post 23 — Wednesday (Use: IMG_3199)
+
+**Caption:**
+Bulk buy = bulk savings 📦
+
+A box of 12 cans is just $72 (excl. GST). That's $6 per can.
+
+Keep one at every saw. Throw one in the van. Stock up and never run out mid-job.
+
+At that price, there's no excuse for dry cutting.
+
+👉 Order your box: www.cutease.co.nz
+
+#CutEase #BulkBuy #ValueForMoney #AluminiumFabrication #StockUp #NZTrades #CuttingLubricant #TradeSupplies #WorkshopReady #FabricationTools
+
+---
+
+### Post 24 — Friday (Use: IMG_3201 or IMG_3200)
+
+**Caption:**
+End of the month. Time to check in 👇
+
+Since you started using Cut-Ease:
+✅ How many blades have you NOT had to replace?
+✅ How much cleaner are your cuts?
+✅ How much time have you saved on rework?
+
+If you haven't tried it yet — this is your sign.
+
+One can. $12. Hundreds of cuts.
+
+👉 www.cutease.co.nz
+
+#CutEase #MonthlyCheckIn #BladeSavings #AluminiumFabrication #ResultsThatMatter #NZFabricators #CuttingFluid #TradeLife #WorkshopUpgrade #TryItNow
+
+---
+
 ## Instagram Stories / Reels Ideas
 
 1. **Quick demo** — 10-second spray + cut. Caption: "One spray. Clean cut. Done."
