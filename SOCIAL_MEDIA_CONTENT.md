@@ -472,3 +472,165 @@ One can. $12. Hundreds of cuts.
 - **Facebook:** Longer captions OK, always include link in text
 - **Instagram:** Link in bio (use Linktree or similar), use hashtags in first comment for cleaner look
 - **Both:** Tag location as New Zealand for local reach
+
+---
+
+## Saved Facebook Posts — Published Over the Next Month
+
+### Post A1 — Blade wear is costing you more than you think
+
+**Caption:**
+Still replacing blades more often than you should?
+
+Aluminium cutting is hard on tooling — friction, heat, and blade wear build up fast.
+
+Cut-Ease helps reduce that wear, improve cut quality, and keep your blade sharper for longer.
+
+One spray. Cleaner cuts. Less downtime.
+
+Ready to make cutting easier?
+👉 www.cutease.co.nz
+
+#CutEase #AluminiumFabrication #BladeLife #CuttingLubricant #TradeTools #WorkshopLife #NZTrades #FabricationNZ
+
+---
+
+### Post A2 — A simple spray makes a big difference
+
+**Caption:**
+The difference between a rough cut and a clean one is often something simple.
+
+Spray Cut-Ease before cutting aluminium and you’ll get less friction, less heat, and a smoother finish from the first cut to the last.
+
+It’s a small step that makes a big impact in the workshop.
+
+Shop now: www.cutease.co.nz
+
+#CutEase #AluminiumCutting #WorkshopEssentials #BladeCare #FabricationLife #TradeTools #NZBusiness #CuttingSpray
+
+---
+
+### Post A3 — Clean cuts without the rebuild
+
+**Caption:**
+If you’re spending too much time filing burrs, cleaning up cuts, or replacing worn blades, it’s time to change the way you cut.
+
+Cut-Ease is designed to help aluminium fabricators get cleaner cuts with less drag and less blade wear.
+
+More productivity. Less frustration.
+
+See the difference: www.cutease.co.nz
+
+#CutEase #CleanCuts #AluminiumFab #WorkshopHacks #BladeMaintenance #NZTrades #CuttingLubricant #MetalFabrication
+
+---
+
+### Post A4 — Why fabricators switch to Cut-Ease
+
+**Caption:**
+We hear this all the time:
+“I didn’t realise how much I needed it until I used it.”
+
+Cut-Ease is built for aluminium fabrication, helping reduce friction, improve blade longevity, and make every cut cleaner.
+
+If you’re cutting aluminium regularly, this is one product worth keeping in the workshop.
+
+Try it today: www.cutease.co.nz
+
+#CutEase #AluminiumFabrication #NewZealandBusiness #BladeLife #WorkshopTools #TradeEssentials #FabricationNZ #CuttingFluid
+
+---
+
+### Post A5 — Your saw deserves better than dry cutting
+
+**Caption:**
+Dry cutting aluminium can lead to heat build-up, shortened blade life, and rougher finishes.
+
+Cut-Ease helps reduce friction and keeps the blade working the way it should — cleaner cuts, less wear, and less hassle.
+
+It’s a simple workshop upgrade that pays off fast.
+
+Learn more: www.cutease.co.nz
+
+#CutEase #DropSaw #TableSaw #Bandsaw #AluminiumCutting #TradeLife #WorkshopTools #CuttingLubricant
+
+---
+
+### Post A6 — Quick tip for a smoother workshop day
+
+**Caption:**
+Before your next aluminium cut, give the blade a quick spray of Cut-Ease.
+
+You’ll notice:
+• less friction
+• cleaner finish
+• better blade life
+• less blade gumming
+
+Small action. Big result.
+
+Shop Cut-Ease: www.cutease.co.nz
+
+#CutEase #WorkshopTip #AluminiumFabrication #BladeCare #CleanCuts #NZTrades #TradeTools #CuttingSpray
+
+---
+
+### Post A7 — Built for real workshop conditions
+
+**Caption:**
+Cut-Ease isn’t just another spray — it’s made for the demands of aluminium fabrication.
+
+Whether you’re cutting profiles, extrusions, or sheet, it helps reduce heat and improve blade performance without the mess.
+
+That means better efficiency and a cleaner finish on the job.
+
+Order yours: www.cutease.co.nz
+
+#CutEase #AluminiumExtrusions #MetalFabrication #FabricationNZ #BladePerformance #WorkshopLife #CuttingLubricant #TradeEssentials
+
+---
+
+### Post A8 — Less blade wear. More consistent results.
+
+**Caption:**
+Ever notice how the last few cuts of the day are rougher than the first?
+
+That’s usually friction and heat taking their toll.
+
+Cut-Ease helps keep the blade running cooler and smoother, so your cuts stay consistent from start to finish.
+
+Make every cut count: www.cutease.co.nz
+
+#CutEase #ConsistentCuts #FabricationLife #BladeLife #WorkshopEfficiency #NZTrades #AluminiumCutting #TradeTools
+
+---
+
+### Post A9 — If you’re still cutting dry, this is your sign
+
+**Caption:**
+Cutting aluminium without lubricant is like trying to run a tool without the right support.
+
+Cut-Ease helps reduce overheating, improve cut quality, and extend blade life — all while keeping the process simple and clean.
+
+The easiest upgrade in the workshop? A can of Cut-Ease.
+
+See more: www.cutease.co.nz
+
+#CutEase #ToolCare #AluminiumFabrication #BladeMaintenance #WorkshopEssentials #CuttingFluid #MadeInNZ #TradeTools
+
+---
+
+### Post A10 — A better cut starts before the cut
+
+**Caption:**
+A clean aluminium cut starts before the blade hits the material.
+
+Spray Cut-Ease onto the blade and you’ll reduce friction, improve blade performance, and create a cleaner finish with less rework.
+
+Faster workflow. Better results. Stronger blades.
+
+Get yours today: www.cutease.co.nz
+
+#CutEase #AluminiumCutting #SharpCuts #BladeLife #WorkshopEfficiency #NZBusiness #FabricationLife #CuttingLubricant
+
+---
