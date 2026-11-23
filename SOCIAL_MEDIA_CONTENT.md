@@ -816,7 +816,7 @@ Merry Christmas from the Cut-Ease team!
 
 > **Note:** Meta only allows scheduling up to 29 days in advance.
 
-### Post B11 — Fri 25 Dec — Merry Christmas (Use: IMG_3198 or a festive photo of the team/workshop)
+### Post B11 — Fri 25 Dec — Merry Christmas (Use: Images/Merry Xmas Image 2026.jpg)
 
 **Status:** ✅ Scheduled in Meta on 24 Nov 2026
 
@@ -835,7 +835,7 @@ Meri Kirihimete!
 
 ---
 
-### Post B12 — Fri 1 Jan — Happy New Year (Use: IMG_3201)
+### Post B12 — Fri 1 Jan — Happy New Year (Use: Images/Happy New Year 2026.jpg)
 
 **Status:** ⏳ NOT YET SCHEDULED. Schedule in Meta on or after **Thu 3 Dec 2026** (29-day limit).
 
