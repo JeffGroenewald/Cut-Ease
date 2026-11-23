@@ -634,3 +634,181 @@ Get yours today: www.cutease.co.nz
 #CutEase #AluminiumCutting #SharpCuts #BladeLife #WorkshopEfficiency #NZBusiness #FabricationLife #CuttingLubricant
 
 ---
+
+## Saved Facebook Posts — Batch B (Pre-Christmas Schedule)
+
+**Status:** ✅ Scheduled in Meta on 24 Nov 2026 (posting 25 Nov – 16 Dec 2026)  
+**Pricing reference:** $12 + GST per can; box of 12 = $144 NZD (per cutease.co.nz)
+
+### Post B1 — Wed 25 Nov — Out with the bobbin grease (Use: IMG_3201)
+
+**Caption:**
+Bobbin grease has had a good run. 🫡
+
+But it's messy, it gets everywhere, and cleaning it off isn't much fun.
+
+Cut-Ease goes on with a quick spray, stays on the blade for multiple cuts, and wipes off clean.
+
+Plenty of fabricators have already put the grease in the cupboard. Your turn?
+
+👉 www.cutease.co.nz
+
+#CutEase #BobbinGrease #UpgradeYourWorkshop #AluminiumCutting #CleanWorkshop #TradeTools #NZFabricators #CuttingSpray
+
+---
+
+### Post B2 — Fri 27 Nov — Poll: What are you cutting? (Use: All 4 images as carousel)
+
+**Caption:**
+Quick one for the fabricators 👇
+
+What are you cutting the most this week?
+
+🅰️ Window and door extrusions
+🅱️ Tube and box section
+🅲 Sheet and flat bar
+🅳 Something else (tell us!)
+
+Whatever it is, if it's aluminium, Cut-Ease makes it easier.
+
+👉 www.cutease.co.nz
+
+#CutEase #FabricatorPoll #AluminiumFabrication #WhatAreYouCutting #MetalWork #NZFabricators #WorkshopLife #TradeChat
+
+---
+
+### Post B3 — Mon 30 Nov — Keep your vivid marks (Use: IMG_3199)
+
+**Caption:**
+Measure twice, mark once, cut once.
+
+Your cut marks only help if you can still see them. Some lubricants wash vivid marks right off the extrusion.
+
+Cut-Ease doesn't. Your marks stay put, so you cut where you meant to.
+
+Less guesswork. Fewer wasted lengths.
+
+👉 www.cutease.co.nz
+
+#CutEase #MeasureTwiceCutOnce #AluminiumExtrusions #WindowManufacturing #AccurateCuts #FabricationLife #NZTrades #CuttingLubricant
+
+---
+
+### Post B4 — Wed 2 Dec — The $12 decision (Use: IMG_3199)
+
+**Caption:**
+$12 + GST.
+
+That's all a can of Cut-Ease costs, and it protects saw blades that cost $80–$150+ to replace.
+
+Grab a box of 12 so there's a can at every saw and one in the van.
+
+Easy decision.
+
+👉 Shop now: www.cutease.co.nz
+
+#CutEase #ValueForMoney #BladeSavings #NZBusiness #TradeSupplies #AluminiumCutting #SmartWorkshop #StockUp
+
+---
+
+### Post B5 — Fri 4 Dec — Hot days, hot blades (Use: IMG_3200)
+
+**Caption:**
+Summer's here. ☀️ The workshop's heating up, and so are your blades.
+
+Heat is what wears blades down and makes aluminium gum up. On hot days it builds up even faster.
+
+A quick spray of Cut-Ease reduces friction and helps keep heat down, so your blade stays cleaner and lasts longer.
+
+Keep your cool this summer.
+
+👉 www.cutease.co.nz
+
+#CutEase #KiwiSummer #BladeHeat #AluminiumCutting #NoGumming #NZTrades #CuttingLubricant #WorkshopTips
+
+---
+
+### Post B6 — Mon 7 Dec — Pre-Christmas rush (Use: IMG_3198)
+
+**Caption:**
+The pre-Christmas rush is here. Every client wants their job finished before the break. 🎄
+
+This isn't the week to stop for a blade change.
+
+Cut-Ease keeps your blades sharper for longer, so you can keep the saw running and get the jobs out the door.
+
+Stock up before the shutdown:
+👉 www.cutease.co.nz
+
+#CutEase #ChristmasRush #AluminiumFabrication #NZTrades #BladeLife #WorkshopLife #CuttingLubricant #FabricationNZ
+
+---
+
+### Post B7 — Wed 9 Dec — One for the van (Use: IMG_3198)
+
+**Caption:**
+Site installers, this one's for you. 🚐
+
+Cutting a profile down on site? Trimming a length that came up a bit long?
+
+Keep a can of Cut-Ease in the van. You'll get clean site cuts without hauling grease or fluids around.
+
+Small can. Same clean cut as back at the workshop.
+
+👉 www.cutease.co.nz
+
+#CutEase #OnSite #WindowInstallers #VanEssentials #AluminiumJoinery #NZTrades #TradeLife #CuttingSpray
+
+---
+
+### Post B8 — Fri 11 Dec — Teach the apprentice right (Use: IMG_3200)
+
+**Caption:**
+Good habits start on day one.
+
+If you're training an apprentice, show them how to look after their gear: a clean blade, the right feed rate, and a quick spray of Cut-Ease before cutting aluminium.
+
+Good habits save blades, cut down on rework, and lead to better work.
+
+Set them up properly.
+
+👉 www.cutease.co.nz
+
+#CutEase #Apprentice #TradeTraining #BladeCare #AluminiumFabrication #NZApprentices #GoodHabits #WorkshopLife
+
+---
+
+### Post B9 — Mon 14 Dec — Your finish is your reputation (Use: IMG_3201)
+
+**Caption:**
+Your clients might never see your saw, but they'll see every joint.
+
+Clean mitres, tight corners and no burrs on the finished product. That's how good fabricators earn repeat work.
+
+Cut-Ease helps you get a cleaner cut straight off the saw, so your finished work speaks for itself.
+
+👉 www.cutease.co.nz
+
+#CutEase #QualityWorkmanship #CleanMitres #AluminiumJoinery #WindowManufacturing #FabricationNZ #ReputationMatters #TradeLife
+
+---
+
+### Post B10 — Wed 16 Dec — Before the break (Use: IMG_3198)
+
+**Caption:**
+Nearly time to down tools for the break. 🎄
+
+Before you shut the workshop doors, take five minutes:
+🔹 Check your blades for wear and build-up
+🔹 Clean them properly
+🔹 Stock up on Cut-Ease so you're ready to go in January
+
+Come back to clean cuts and a full shelf.
+
+Merry Christmas from the Cut-Ease team!
+
+👉 www.cutease.co.nz
+
+#CutEase #MerryChristmas #ChristmasBreak #BladeCare #AluminiumFabrication #NZTrades #WorkshopReady #CuttingLubricant
+
+---
