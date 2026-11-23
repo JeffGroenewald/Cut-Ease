@@ -5,6 +5,19 @@
 **Tone:** Practical, confident, trade-focused. Speak to fabricators directly.  
 **CTA:** Always link back to the website.
 
+> ## ⚠️ PRICING — CHECK BEFORE EVERY POST
+> Source: cutease.co.nz product page (checked 24 Nov 2026)
+>
+> | Pack | Price | Per can |
+> |------|-------|---------|
+> | Box of 6 × 400g | **$72 + GST** | $12 + GST |
+> | Box of 12 × 400g | **$144 + GST** | $12 + GST |
+>
+> - Always say **"$12 + GST per can"**. It's never $6 a can.
+> - Single cans are **not** sold on their own. Only boxes of 6 or 12 are available.
+> - There's **no bulk discount**. The price per can is the same in both box sizes, so don't say "bulk savings".
+> - If prices change on the website, update this table first.
+
 ---
 
 ## Week 1
@@ -16,7 +29,7 @@ Still fighting rough cuts and chewed-up blades?
 
 One quick spray of Cut-Ease and your drop saw glides through aluminium like butter. Sharper cuts. Longer blade life. Less mess.
 
-At just $12 a can, it's the cheapest upgrade in your workshop.
+At just $12 + GST a can, it's the cheapest upgrade in your workshop.
 
 👉 Shop now: www.cutease.co.nz
 
@@ -65,7 +78,7 @@ Cut-Ease aluminium cutting lubricant:
 ✅ Stays on the blade for multiple cuts
 ✅ Doesn't wash off vivid marks
 ✅ Cleans up in seconds
-✅ $12 per can
+✅ $12 + GST per can
 
 Simple. Effective. Affordable.
 
@@ -87,7 +100,7 @@ Whatever you're cutting aluminium with — Cut-Ease has you covered.
 
 One product. Every tool. Effortless results.
 
-From $72 for a box of 12. That's months of smoother cuts and sharper blades for less than a single replacement blade costs.
+From $72 + GST for a box of 6. That's months of smoother cuts and sharper blades for less than a single replacement blade costs.
 
 👉 Grab yours: www.cutease.co.nz
 
@@ -152,7 +165,7 @@ Between replacements, rework, and wasted time — it adds up fast.
 
 Cut-Ease keeps your blades cutting clean for longer. One spray before your cut and you'll feel the difference immediately.
 
-$12 a can. Pays for itself in the first hour.
+$12 + GST a can. Pays for itself in the first hour.
 
 👉 www.cutease.co.nz
 
@@ -199,7 +212,7 @@ How often are you replacing saw blades?
 
 If it's more than you'd like — you're probably cutting dry. Cut-Ease lubricant dramatically extends blade life and improves cut quality on aluminium.
 
-One can lasts hundreds of cuts. At $12, it's a no-brainer.
+One can lasts hundreds of cuts. At $12 + GST, it's a no-brainer.
 
 👉 www.cutease.co.nz
 
@@ -233,7 +246,7 @@ You'll get:
 • Way less noise
 • A finish that doesn't need filing
 
-Available in single cans or boxes of 12.
+Available in boxes of 6 or 12.
 
 👉 www.cutease.co.nz
 
@@ -262,7 +275,7 @@ Cut-Ease aluminium cutting lubricant — protecting your blades while you get th
 Here's the maths 👇
 
 Average replacement blade: $80–$150+
-One can of Cut-Ease: $12
+One can of Cut-Ease: $12 + GST
 
 If Cut-Ease doubles your blade life (and it does), you're saving hundreds per year — per saw.
 
@@ -375,7 +388,7 @@ Cut-Ease works on every saw in your workshop:
 🔹 Table saws — reduced heat, better finish
 🔹 Grinders — less clogging, longer disc life
 
-One product. Every machine. $12 a can.
+One product. Every machine. $12 + GST a can.
 
 Why complicate it?
 
@@ -422,9 +435,9 @@ No mess. No fuss. Just results.
 ### Post 23 — Wednesday (Use: IMG_3199)
 
 **Caption:**
-Bulk buy = bulk savings 📦
+Stock up and never run out 📦
 
-A box of 12 cans is just $72 (excl. GST). That's $6 per can.
+A box of 12 cans is $144 + GST. That's just $12 a can.
 
 Keep one at every saw. Throw one in the van. Stock up and never run out mid-job.
 
@@ -448,7 +461,7 @@ Since you started using Cut-Ease:
 
 If you haven't tried it yet — this is your sign.
 
-One can. $12. Hundreds of cuts.
+One can. $12 + GST. Hundreds of cuts.
 
 👉 www.cutease.co.nz
 
@@ -638,7 +651,7 @@ Get yours today: www.cutease.co.nz
 ## Saved Facebook Posts — Batch B (Pre-Christmas Schedule)
 
 **Status:** ✅ Scheduled in Meta on 24 Nov 2026 (posting 25 Nov – 16 Dec 2026)  
-**Pricing reference:** $12 + GST per can; box of 12 = $144 NZD (per cutease.co.nz)
+**Pricing reference:** see the pricing table at the top of this file
 
 ### Post B1 — Wed 25 Nov — Out with the bobbin grease (Use: IMG_3201)
 
