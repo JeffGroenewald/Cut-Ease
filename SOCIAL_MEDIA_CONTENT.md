@@ -812,3 +812,38 @@ Merry Christmas from the Cut-Ease team!
 #CutEase #MerryChristmas #ChristmasBreak #BladeCare #AluminiumFabrication #NZTrades #WorkshopReady #CuttingLubricant
 
 ---
+## Holiday Posts
+
+### Post B11 — Fri 25 Dec — Merry Christmas (Use: IMG_3198 or a festive photo of the team/workshop)
+
+**Caption:**
+Merry Christmas from all of us at Cut-Ease! 🎄
+
+A huge thank you to every fabricator, installer and workshop that has backed a local Kiwi product this year. We really appreciate your support.
+
+Enjoy a well-earned break, stay safe, and spend some quality time with the people who matter. The saws can wait. 😉
+
+Meri Kirihimete!
+
+👉 www.cutease.co.nz
+
+#CutEase #MerryChristmas #MeriKirihimete #ThankYou #NZTrades #KiwiBusiness #SupportLocal #AluminiumFabrication
+
+---
+
+### Post B12 — Fri 1 Jan — Happy New Year (Use: IMG_3201)
+
+**Caption:**
+Happy New Year from the Cut-Ease team! 🎉
+
+Here's to a 2027 of sharp blades, clean cuts and plenty of work through the doors.
+
+When you head back to the workshop, make sure there's a can of Cut-Ease next to every saw. Start the year the way you mean to go on.
+
+Thanks for your support, and all the best for the year ahead.
+
+👉 www.cutease.co.nz
+
+#CutEase #HappyNewYear #2027 #BackToWork #AluminiumFabrication #NZTrades #FreshStart #CuttingLubricant
+
+---
